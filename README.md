@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **react**
 
-- 📫 How to reach me **oratilwedithlage@gmail.com**
+- 📫 How to reach me **ditlhageoratile@gmail.com**
 
 - ⚡ Fun fact **I love the gym**
 
